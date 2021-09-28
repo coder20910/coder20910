@@ -7,5 +7,5 @@
 - 💬 Ask me about ... Anything.
 - 📫 How to reach me: ... [LinkedIn](https://www.linkedin.com/in/chandan-kumar-21b142173/)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... Introvert who always wants to introvert.
+- ⚡ Fun fact: ... I am ambivert.
 
